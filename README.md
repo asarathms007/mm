@@ -1,3 +1,6 @@
+https://chatgpt.com/share/6ae965fc-a7a4-83e8-915c-18586ee18ffe?ogimg=plain
+
+
 GOOGLE DATA ANALYTICS
 TEST CASE 1: Retail Sales Performance Analysis
 Aim:
